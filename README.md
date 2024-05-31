@@ -7,7 +7,7 @@
 - 💞️ I’m looking to collaborate with other Server Admins and want to grow up My Server an Community with good Content.
 
 -  📫 How to reach me
-   > Discord https://discord.gg/yVhBH88pmW![image](https://github.com/chilliyTV/chilliyTV/assets/170975315/ccaa63e7-159a-4292-9d2b-843cf2016fb9)
+   > Discord https://discord.gg/yVhBH88pmW
 - 
 - ⚡ Fun fact: im old :D
 
