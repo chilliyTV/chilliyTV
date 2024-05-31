@@ -4,7 +4,7 @@
   
 - 🌱 I’m currently learning more and more about Server Stuff.
   
-- 💞️ I’m looking to collaborate with other Server Admins and want to grow up My Server an Community with good Content.
+- 💞️ I’m looking to collaborate with other Server Admins and want to grow up My Server and Community with good Content.
 
 -  📫 How to reach me
    > Discord https://discord.gg/yVhBH88pmW
